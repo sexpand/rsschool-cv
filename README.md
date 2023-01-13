@@ -1,1 +1,1 @@
-# rsschool-cv
+https://sexpand.github.io/rsschool-cv/cv
